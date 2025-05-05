@@ -23,6 +23,17 @@
 - Performed DNA gel electrophoresis, PCR, Western blot, ligation
 
 ---
+## 📌 Featured Projects
+
+### 🎉 Event Planning | Skyline College ASSC
+As an executive member of student government, I co-led campus-wide event planning and marketing, including:
+- Designing materials (flyers, promo) using Canva
+- Coordinating logistics and community engagement
+- Leading outreach and communication strategies
+
+📎 [View Event Plan Design on Canva](https://www.canva.com/design/DAGmmQHbIjA/xng-yv2LQAySL-1alRJF-w/edit?utm_content=DAGmmQHbIjA&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+
+---
 
 ## 📈 Projects & Presentations
 
